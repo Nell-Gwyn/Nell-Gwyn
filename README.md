@@ -43,6 +43,11 @@ and a medal round my neck!<br>
 I played the part (she played the part!)<br>
 and that was that! (she laid 'em flat!)<br>
 Nobody knew I was a scaredy little cat! (scaredy cat!)<br>
+  
+I played the part of the loyal housewife,<br>
+whilst I kept a little cutie safely hid! (safely hid!)<br>
+I played the part of the trusty employee,<br>
+and I hadn't the foggiest notion what I did! (rotten kid!)<br>
 
 When I have come to pass,<br>
 they'll send me to my fates,<br>
